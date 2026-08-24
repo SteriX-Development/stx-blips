@@ -17,4 +17,4 @@
 
 For Support or Development Join Our Discord
 
-* [Discord](https://discord.gg/68Uj9ZhubX)
+* [Discord](https://discord.gg/9MBXhPZnuD)
